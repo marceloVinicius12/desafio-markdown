@@ -7,6 +7,7 @@
 ## redes socias 
 + [facebook](https://www.facebook.com/marcelo.vinicius.14019338/)
 + [instagram](https://www.instagram.com/marcelo.vini12/?hl=pt-br)
+
  
  
 ![github](https://user-images.githubusercontent.com/74020188/114731714-583b7680-9d18-11eb-826c-e01dc156e35e.png)
